@@ -14,3 +14,4 @@
 
 5. How To Build Skyscrapers? Modern Technology & Construction Process Of High Rise Building *(YouTube)*
    https://www.youtube.com/watch?v=Ie6X3W4tfoo&t=31s
+6. https://www.youtube.com/watch?v=VpJ4AjsYp4A Burj Khalifa | The Secrets of its incredibly Strong Foundation
