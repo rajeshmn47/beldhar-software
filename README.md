@@ -12,3 +12,5 @@
 4. **Foreman Job Interview** *(YouTube)*
    https://www.youtube.com/watch?v=3NG-aw8MmZ8
 
+5. How To Build Skyscrapers? Modern Technology & Construction Process Of High Rise Building *(YouTube)*
+   https://www.youtube.com/watch?v=Ie6X3W4tfoo&t=31s
